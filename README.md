@@ -1,3 +1,4 @@
 # Asset-Lifecycle-Workflow-
 
-file:///C:/Users/kc/OneDrive/Project%20Workflow/Approval%20Life%20cycle%20-%20Approval%20Request-1665333091137.pdf
+![image](https://github.com/Kizitoiv/Asset-Lifecycle-Workflow-/assets/144156432/0539ea98-6db3-4b75-82af-cff4c41d28fe)
+
